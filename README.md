@@ -1,1 +1,1 @@
-# albastru-eun.github.io
+# albastru-eun
